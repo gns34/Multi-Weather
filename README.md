@@ -24,7 +24,7 @@
 
 ## 📸 Screenshots
 
-> *Add screenshots here if available*
+> *Adding Soon*
 
 ---
 
